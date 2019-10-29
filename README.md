@@ -1,1 +1,0 @@
-# eastnorway1.github.io
